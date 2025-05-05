@@ -1,0 +1,1 @@
+# Pryk_analiz_indz1
